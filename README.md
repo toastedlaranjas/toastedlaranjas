@@ -4,6 +4,7 @@ Hey, you can call me Wen! I'm a 18 queer person and I label myself as a bulldyke
 <img src=https://i.postimg.cc/fSsvkvKX/tumblr-09566db980dadaa0b033a1da483b5f0b-99d1c272-250.webp="1">
 
   A quick **“Don't try to be my friend if...”**:
+  
 If you're heavly antishipper. i.e: will harass me because of a homestuck or whatever ship.
 
 If you're heavly proshipper. i.e: shota/loli stuff; any kinda newgen proship who acts like "hehe proship in bio shotalolicon rape rape uwu"; or make it your personality.
