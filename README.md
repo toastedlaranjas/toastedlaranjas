@@ -5,7 +5,11 @@ Hey, you can call me Wen! I'm a 18 queer person and I label myself as a bulldyke
 
   A quick **“Don't try to be my friend if...”**:
 If you're heavly antishipper. i.e: will harass me because of a homestuck or whatever ship.
+
 If you're heavly proshipper. i.e: shota/loli stuff; any kinda newgen proship who acts like "hehe proship in bio shotalolicon rape rape uwu"; or make it your personality.
+
 If you don't like "complex" identities. i.e: against lesboys (I'm a queer boydyke, c'mon.) or any other stuff of being queer.
-Use butch and/or femme as a aesthetic thing and not like a real identity, or if you use "futch" as a aesthetic rather than as a genuine intersection of both subcultures (butchfemme).
+
+If you use butch and/or femme as a aesthetic thing and not like a real identity, or if you use "futch" as a aesthetic rather than as a genuine intersection of both subcultures (butchfemme).
+
 Or if you're just annoying. I'll hide or block if you're a troll. I don't usually feed the trolls, I'm the troll.
