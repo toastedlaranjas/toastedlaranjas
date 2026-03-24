@@ -12,7 +12,7 @@ If you're heavly antishipper. i.e: will harass me because of a homestuck or what
 
 If you're heavly proshipper. i.e: shota/loli stuff; any kinda newgen proship who acts like "hehe proship in bio shotalolicon rape rape uwu"; or make it your personality.
 
-If you don't like "complex" identities. i.e: against lesboys (I'm a queer boydyke, c'mon.) or any other stuff of being queer.
+If you don't like "complex" identities. i.e: against lesboys (I'm a queer girl boydyke, c'mon.) or any other stuff of being queer.
 
 If you use butch and/or femme as a aesthetic thing and not like a real identity, or if you use "futch" as a aesthetic rather than as a genuine intersection of both subcultures (butchfemme).
 
