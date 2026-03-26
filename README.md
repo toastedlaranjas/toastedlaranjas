@@ -14,6 +14,8 @@ If you're heavly proshipper. i.e: shota/loli stuff; any kinda newgen proship who
 
 If you don't like "complex" identities. i.e: against lesboys (I'm a queer girl boydyke, c'mon.) or any other stuff of being queer.
 
+If you're a transmisogynist(noire). Don't talk to me if you belive trans women and transfeminized bodies have male socialization. Don't talk to me if you don't like the transfeminism. Don't talk to me if you call trans woman "transfem" (if they want/don't care, ok.). Don't talk to me if you don't like the terms tma/tme or if you treat trans women as a third-sex/desgender trans women.
+
 If you use butch and/or femme as a aesthetic thing and not like a real identity, or if you use "futch" as a aesthetic rather than as a genuine intersection of both subcultures (butchfemme).
 
 Or if you're just annoying. I'll hide or block if you're a troll. I don't usually feed the trolls, I'm the troll.
