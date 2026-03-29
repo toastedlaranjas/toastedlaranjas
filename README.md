@@ -1,6 +1,6 @@
 ![Profile view counter on Github](https://komarev.com/ghpvc/?username=toastedlaranjas)
 
-Hey, you can call me Wen! I'm a 18 queer person and I label myself as a bulldyke(fag), my pronouns are usually she/her, but I don't care being called "he", and I'm also a brazilian. I don't really care about pro/anti discourse, so I usually roleplay what I like to (that means i ship what i want too), don't bother me. If you really want to interact, whispers are my pref, sometimes I can't read some mensages. I use translators to help me in chats.
+Hey, you can call me Wen! I'm a 18 queer person and I label myself as a trans n queer, my pronouns are usually she/her, but I don't care being called "he", and I'm also a brazilian. I don't really care about pro/anti discourse, so I usually roleplay what I like to (that means i ship what i want too), don't bother me. If you really want to interact, whispers are my pref, sometimes I can't read some mensages. I use translators to help me in chats.
 
 <p align="center"><img src=https://i.postimg.cc/zLJXL04L/5ce7c116.png="1"> <img src=(https://i.postimg.cc/Mv2vF21C/homestuck.gif)="1">
 <img src=https://i.postimg.cc/Mv2vF21C/homestuck.gif="1">
